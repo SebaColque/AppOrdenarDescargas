@@ -30,4 +30,4 @@ a la lista de exclusiones o desactives temporalmente el antivirus durante el uso
 
 ## Contacto
 Email: sebacolque06@gmail.com
-LinkedIn: 
+LinkedIn: https://www.linkedin.com/in/sebasti%C3%A1n-colque-20a040180/
